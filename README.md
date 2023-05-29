@@ -3,6 +3,6 @@
 
 ## Lucas Gabriel Ibañez
 
-## Juan Vega
+## Juan Vega - edad:25 -ciudad: moron
  
 ## Juan Gomez
