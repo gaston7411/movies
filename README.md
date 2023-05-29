@@ -3,6 +3,6 @@
 
 ## Lucas Gabriel Ibañez 20 años, San Miguel de Tucuman
 
-## Juan Vega
+## Juan Vega - edad:25 -ciudad: moron
  
 ## Juan Gomez
