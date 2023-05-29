@@ -3,6 +3,6 @@
 
 ## Lucas Gabriel Ibañez
 
-## Juan Vega
+## Juan Vega 
  
-## Juan Gomez 
+## Juan Gomez 32 años, San Miguel
